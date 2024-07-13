@@ -1,4 +1,4 @@
-![HOLA AMIGO](URL "![@mohitmallick_20240713_113402_0000](https://github.com/user-attachments/assets/742a9eff-52c1-462e-8a00-89bfc9797c3a)")
+![](URL "![@mohitmallick_20240713_113402_0000](https://github.com/user-attachments/assets/742a9eff-52c1-462e-8a00-89bfc9797c3a)")
 
 
 - 🔭 I’m currently working on **NEW-NEW ANIMATED 3-D PROJECTS**
