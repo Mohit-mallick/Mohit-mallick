@@ -1,4 +1,5 @@
-![](URL "![@mohitmallick_20240713_113402_0000](https://github.com/user-attachments/assets/742a9eff-52c1-462e-8a00-89bfc9797c3a)")
+![@mohitmallick_20240713_113402_0000](https://github.com/user-attachments/assets/ed7e1834-be8f-4671-a82a-ea05ab7b01e6)
+
 
 
 - 🔭 I’m currently working on **NEW-NEW ANIMATED 3-D PROJECTS**
