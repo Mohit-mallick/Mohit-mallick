@@ -4,9 +4,9 @@
 
 - 🔭 I’m currently working on **NEW-NEW ANIMATED 3-D PROJECTS**
 
-- 🌱 I’m currently learning **JAVA,REACT.JS,TAILWIND.CSS**
+- 🌱 I’m currently learning **JAVA, REACT.JS, TAILWIND.CSS**
 
-- 👯 I’m looking to collaborate on **ON ANIMATED OR ANYTHING I'M FREE TO CONTRIBUTE AS I WANT TO LEARN ABOUT NEW TECHNOLOGY**
+- 👯 I’m looking to collaborate on ** ANIMATED OR ANYTHING I'M FREE TO CONTRIBUTE AS I WANT TO LEARN ABOUT NEW TECHNOLOGY**
 
 - 👨‍💻 All of my projects are available at [https://heroic-yeot-256e23.netlify.app](https://heroic-yeot-256e23.netlify.app)
 
